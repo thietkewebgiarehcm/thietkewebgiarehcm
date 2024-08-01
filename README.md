@@ -41,7 +41,7 @@ https://twitch.tv/phuongnamvina/about
 https://pinterest.com/phuongnamvina10/
 https://500px.com/p/phuongnamvina10
 https://tumblr.com/phuongnamvina10
-mixcloud.com/phuongnamvina10/
+https://mixcloud.com/phuongnamvina10/
 https://github.com/thietkewebgiarehcm
 https://gravatar.com/phuongnamvina10
 https://vimeo.com/phuongnamvina10
@@ -60,7 +60,7 @@ https://tawk.to/phuongnamvina10
 https://ameblo.jp/phuongnamvina
 https://wellfound.com/u/phuongnamvina10
 https://stackoverflow.com/users/26343320/ph%c6%b0%c6%a1ng-nam-vina
-openstreetmap.org/user/C%C3%94NG%20TY%20PH%C6%AF%C6%A0NG%20NAM%20VINA%20%7C%20Website%20-%20Logo%20-%20Qu%E1%BA%A3ng%20c%C3%A1o
+https://openstreetmap.org/user/C%C3%94NG%20TY%20PH%C6%AF%C6%A0NG%20NAM%20VINA%20%7C%20Website%20-%20Logo%20-%20Qu%E1%BA%A3ng%20c%C3%A1o
 https://about.me/phuongnamvina2409
 https://heylink.me/phuongnamvina/
 https://band.us/@phuongnamvina
